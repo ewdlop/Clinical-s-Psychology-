@@ -33,7 +33,7 @@ me: is this what you meant?
 
 Bronzebeard: Evaside action! Evasive Action! 
 
-POP: DEEP SPACE CARTEL!!(they were shooting each other with high speed bullet made out of ballet and playing cards and plotting each other)
+POP: DEEP SPACE CARTEL!!(they were shooting each other with high speed bullet made out of ~ballet~rocks and playing cards and plotting each other)
 
 # Other way Dunning-kunger:
 
