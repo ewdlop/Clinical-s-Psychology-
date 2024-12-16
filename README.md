@@ -9,6 +9,13 @@ Scientist: they block meteroites for us and
 
 Netwon: It happend that way due to Netown's theory of gravity.
 
+anthropologist: anthropomorphism and antrophic principle
+
+NASA: we are trying contact deep space DaVinci 
+
+Angle-sagon: wtf? you are spending my money on what!?
+
+
 
 Gravity as seatbelt:
 
