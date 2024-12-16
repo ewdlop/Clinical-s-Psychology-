@@ -11,7 +11,7 @@ Netwon: It happend that way due to Netown's theory of gravity.
 
 anthropologist: anthropomorphism and antrophic principle
 
-NASA: we are trying contact deep space DaVinci 
+NASA: we are trying to contact deep space DaVinci 
 
 Angle-sagon: wtf? you are spending my money on what!?
 
@@ -27,6 +27,18 @@ her: warzone
 
 me: even if you are in rest, Netwon said we are still in motion (stationary frame of reference is still inertial)
 
+her: we crowling down but we cannot dodge the bullet like that and we cannot keep trying to dodge the bullet?
+
+me: is this what you meant?
+
+Bronzebeard: Evaside action! Evasive Action! 
+
 # Other way Dunning-kunger:
 
 Why couldnt they draw the graph in the other direction(backward thinking and draw the chart upside down)
+
+You know whether there is a twinflame or no. Some people might as well as label you as twinflame if you have a broken relationship.
+
+mathematician: welcome to 3d Dunning-kunger
+
+Hunter: Ray went for string theory landscape shaped like Dunning-kunger effect.........
