@@ -52,3 +52,5 @@ Mother-earth: i tohught i was the real Luteheus all along.
 GOD: why dont we all always something to say?
 
 Heavenly court: why do yall have to say?
+
+King yeman: yall crime is made fun of him to death and he stil lthink he is a jester and can rofl to death HHAHHAHAHAHAHHA
