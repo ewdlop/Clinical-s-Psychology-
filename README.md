@@ -50,3 +50,5 @@ and it has some twists....
 Mother-earth: i tohught i was the real Luteheus all along.
 
 GOD: why dont we all always something to say?
+
+Heavenly court: why do yall have to say?
