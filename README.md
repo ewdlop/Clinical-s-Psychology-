@@ -44,3 +44,7 @@ mathematician: welcome to 3d Dunning-kunger
 Hunter: Ray went for string theory landscape shaped like Dunning-kunger effect.........
 
 and it has some twists....
+
+Mother-earth: i tohught i was the real Luteheus all along.
+
+GOD: why dont we all always something to say?
