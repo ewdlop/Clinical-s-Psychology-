@@ -33,6 +33,8 @@ me: is this what you meant?
 
 Bronzebeard: Evaside action! Evasive Action! 
 
+POP: DEEP SPACE CARTEL!!(they were shooting each other with high speed bullet made out of ballet and playing cards and plotting each other)
+
 # Other way Dunning-kunger:
 
 Why couldnt they draw the graph in the other direction(backward thinking and draw the chart upside down)
