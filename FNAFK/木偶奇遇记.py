@@ -1,4 +1,3 @@
-```python
 from psychopy import visual, core, event, data, gui
 import random
 import json
@@ -205,4 +204,3 @@ if __name__ == "__main__":
         exp.run_experiment()
     finally:
         exp.cleanup()
-```
